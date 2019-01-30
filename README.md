@@ -29,3 +29,8 @@ https://bbs.pediy.com/thread-248989.htm
 提取码：u05x
 
 ```
+
+#### or download
+```
+https://mega.nz/#!OqB02Kwa!lTNPcT6rRjzLjhuzAC5EdJ7DmgHhcoXNUABrwcyqCVk
+```
